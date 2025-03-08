@@ -1,1 +1,1 @@
-⭐ This project is currently being suspended maintenance. Sorry for the inconvinence. ⭐
+⭐ This project is currently being suspended for maintenance. Sorry for the inconvinence. ⭐
